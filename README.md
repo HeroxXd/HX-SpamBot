@@ -2,4 +2,4 @@
 Spam Bot
 
 
-# Say Herox_OP Else you Gay
+# Say Herox_OP Else you Gay or Girls My GF 
